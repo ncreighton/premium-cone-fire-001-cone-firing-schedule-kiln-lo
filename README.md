@@ -1,0 +1,2 @@
+# premium-cone-fire-001-cone-firing-schedule-kiln-lo
+Tired of inconsistent glaze results and lost firing notes? The Cone Firing Schedule &amp; Kiln Log Craft Lab transforms your kiln sessions from chaotic guesswork into repeatable, data-driven artistry.  This Notion template replaces scattered notebooks and sticky notes with a single, organized system for planning and logging every firing. By capturing c
